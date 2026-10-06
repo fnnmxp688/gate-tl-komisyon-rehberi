@@ -1,0 +1,1 @@
+# gate-tl-komisyon-rehberi
